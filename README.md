@@ -1,1 +1,1 @@
-# diplmoe
+# diplmoes
